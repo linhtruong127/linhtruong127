@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **mylinh12785@gmail.com**
 
-- ⚡ Fun fact **Starting an IT job quite late at 35 with fully dedicated myself to it**
+- ⚡ Fun fact **Starting my first tester job quite late at 35 but I love to explore the IT world and fully dedicated myself to it**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
